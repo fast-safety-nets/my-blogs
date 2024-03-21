@@ -1,5 +1,7 @@
 **How to Properly Install a Monkey Net: A Step-by-Step Guide**
 
+![Monkey Nets Installation](how-to-properly-install-monkey-net-step-by-step-guide.jpg)
+
 Monkey nets, also known as safety nets or fall arrest nets, are crucial components in various industries such as construction, forestry, and adventure parks. Proper installation of these nets is essential for ensuring the safety of workers and preventing accidents. In this comprehensive guide, we'll walk through the step-by-step process of installing a monkey net to guarantee its effectiveness and reliability.
 
 Step 1: Assessing the Site and Risks
